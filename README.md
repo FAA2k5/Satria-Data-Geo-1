@@ -1,1 +1,0 @@
-# Satria-Data-Geo-1
